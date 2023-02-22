@@ -1,0 +1,1 @@
+Cerita tentang tiga orang yang terlempar ke dunia isekai zaman doeloe tapi funky (ala Gintama) dan masing-masing menempuh perjalanan panjang untuk mencapai pintu yang bisa membawa mereka pulang ke dunia mereka.
