@@ -1,0 +1,3 @@
+Putra adalah seoarang anak SMA yang benci dengan bakatnya sendiri, dan berikrar untuk menjadi seorang 'Perfect Beta Male' yaitu manusia dengan personal stats paling standar, saking standar dan tidak mencoloknya bahkan dia bisa dilupakan secara tidak sadar, tapi masa lalu yang tiba-tiba datang kembali pada kehidupannya malah mengganggu jalan untuk mencapai tujuannya tersebut. 
+
+Genre : School Romance, Comedy, Drama
